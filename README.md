@@ -19,6 +19,12 @@ https://www.youtube.com/watch?v=9PsYgKnpauI 130bpm
 ## Lyrics
 
 ```
+
+dryspace
+dryspace
+dryspace
+dryspace 
+
 CHORUS
 that sys tech took too many nulls aye 
 — I ain't givin' up — hackin' real till we cut 10 (into)
@@ -26,12 +32,12 @@ that sys tech took too many nulls aye
 (We) bring it home (fast) or we dry in space
 Till we done 
 
-Gettin' it done (on), tough nails through your coffin
+Gettin' it done (on), tough nails through the coffin
 Life runs its (own) course along the lines
 of others telling you to stop (often)
 Let'em try to touch you with their words
 of dire that mean nothing to you lot
-Decide for them
+Decide for them or suffer the offers
 
 Dryspace, no friction to run 
 Dryspace, no friction to run
