@@ -39,6 +39,10 @@ Let'em try to touch you with their words
 of dire that mean nothing to you lot
 Decide for them or suffer the offers
 
+They meant something
+Now they mean nothing
+They mean nothing
+
 Dryspace, no friction to run 
 Dryspace, no friction to run
 
