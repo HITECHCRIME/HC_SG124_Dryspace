@@ -25,10 +25,12 @@ that sys tech took too many nulls aye
 (We) bring it home (fast) or we dry in space
 Till we done 
 
-Life runs its own course along the lines
-of others telling you to stop
+Gettin' it done, tough nails through your coffin
+Life runs its (own) course along the lines
+of others telling you to stop (often)
 Let'em try to touch you with their words
 of dire that mean nothing to you lot
+Decide for them
 
 Dryspace, no friction to run 
 Dryspace, no friction to run
