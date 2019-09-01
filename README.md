@@ -16,7 +16,14 @@ Description.
 ## Lyrics
 
 ```
+that sys tech took too many null (tries) aye
+— I ain't givin' up — hackin' real till we cut 10 (into)
+— I'm burnin' haze kush with my circle ops
+(We) bring it home (fast) or we dry in space
+Till we done
 
+Dryspace, no friction to run 
+Dryspace, no friction to run
 
 ```
 
