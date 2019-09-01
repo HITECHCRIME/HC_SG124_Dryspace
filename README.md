@@ -19,7 +19,7 @@ https://www.youtube.com/watch?v=9PsYgKnpauI 130bpm
 ## Lyrics
 
 ```
-that sys tech took too many null (tries) aye
+that sys tech took too many nulls aye (tries)
 — I ain't givin' up — hackin' real till we cut 10 (into)
 — I'm burnin' haze kush with my circle ops
 (We) bring it home (fast) or we dry in space
