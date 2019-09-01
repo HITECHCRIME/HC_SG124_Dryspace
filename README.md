@@ -22,7 +22,6 @@ NF type https://www.youtube.com/watch?v=yWIt9L_g5Nc
 ## Lyrics
 
 ```
-
 dryspace
 dryspace
 dryspace
@@ -36,10 +35,11 @@ that sys tech took too many nulls aye
 Till we done 
 
 Gettin' it done (on), tough nails through the coffin
-Life runs its (own) course along the lines
-of others telling you to stop                   (whisper: often)
-Let'em try to touch you with their words
-of dire that mean nothing to you lot
+Life runs its (own) course 
+along the lines of others telling (you) to stop so often (whisper: so often)
+Let'em try to touch you with their orders 
+words of dire that mean nothing 
+they mean nothing to you lot
 Decide for them or suffer the offers
 
 They meant something
