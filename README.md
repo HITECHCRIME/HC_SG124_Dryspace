@@ -37,7 +37,7 @@ Till we done
 
 Gettin' it done (on), tough nails through the coffin
 Life runs its (own) course along the lines
-of others telling you to stop (often)
+of others telling you to stop                   (whisper: often)
 Let'em try to touch you with their words
 of dire that mean nothing to you lot
 Decide for them or suffer the offers
