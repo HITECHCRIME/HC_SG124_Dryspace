@@ -42,10 +42,19 @@ Decide for them or suffer the offers
 
 They meant something
 Now they mean nothing
+
+They meant something
+Now they mean nothing
+
 They mean nothing
 
 Dryspace, no friction to run 
 Dryspace, no friction to run
+
+no friction to run
+no friction to run
+no friction to run
+no friction to run
 
 CHORUS
 that sys tech took too many nulls aye 
