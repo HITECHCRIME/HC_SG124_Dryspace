@@ -19,14 +19,16 @@ https://www.youtube.com/watch?v=9PsYgKnpauI 130bpm
 ## Lyrics
 
 ```
-that sys tech took too many nulls aye (tries)
+that sys tech took too many nulls aye 
 — I ain't givin' up — hackin' real till we cut 10 (into)
 — I'm burnin' haze kush with my circle ops
 (We) bring it home (fast) or we dry in space
-Till we done
+Till we done 
 
 Life runs its own course along the lines
 of others telling you to stop
+Let'em try to touch you with their words
+of dire that mean nothing to you lot
 
 Dryspace, no friction to run 
 Dryspace, no friction to run
