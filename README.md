@@ -25,6 +25,9 @@ that sys tech took too many nulls aye (tries)
 (We) bring it home (fast) or we dry in space
 Till we done
 
+Life runs its own course along the lines
+of others telling you to stop
+
 Dryspace, no friction to run 
 Dryspace, no friction to run
 
