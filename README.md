@@ -24,8 +24,9 @@ ACTUAL BEAT https://www.youtube.com/watch?v=9s3dyl_w7o8
 ## Lyrics
 
 ```
+<intro>
 
-That sys tech took too many nulls aye 
+that sys tech took too many nulls aye 
 i ain't givin' up - hackin' real till we cut
 i'm burnin' haze kush with my circle ops
 we bring home-ooor-we-dry in space till we done 
@@ -69,27 +70,15 @@ words of dire that mean nothing
 they mean nothing to you lot
 they mean nothing
 
+they mean nothing
 
+----------------------------------------------
 
 OLD
-
-
 burnin' haze kush with demigods
-
-
-
-
-
 Decide for them or suffer the offers
-
 They meant something
 Now they mean nothing
-
-OLD
-
-dryspace
-dryspace
-dryspace
 dryspace 
 
 CHORUS
@@ -109,15 +98,11 @@ Decide for them or suffer the offers
 
 They meant something
 Now they mean nothing
-
 They meant something
 Now they mean nothing
-
 They mean nothing
-
 Dryspace, no friction to run 
 Dryspace, no friction to run
-
 no friction to run
 no friction to run
 no friction to run
@@ -129,7 +114,6 @@ that sys tech took too many nulls aye
 — I'm burnin' haze kush with my circle ops
 (We) bring it home (fast) or we dry in space
 Till we done 
-
 ```
 
 ## Lyrics Production
