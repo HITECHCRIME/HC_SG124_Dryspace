@@ -26,10 +26,10 @@ ACTUAL BEAT https://www.youtube.com/watch?v=9s3dyl_w7o8
 ```
 <intro>
 
-that sys tech took too many nulls aye 
+that sys tech (took) too many nulls aye 
 i ain't givin' up - hackin' real till we cut
 i'm burnin' haze kush with my circle ops
-we bring home-ooor-we-dry in space till we done 
+we bring home-ooor-we-dry in space till we done aye
 
 gettin' it done, tough nails 
 through the coffin 
@@ -47,18 +47,18 @@ they meant something
 now they mean nothing
 they meant something
 now they mean nothing
-whispers whispers whispers whispers whispers
-- to run
-friction to rn
+whispers whispers whispers whispers 
+whispers to run
+friction to run
 no friction to run aye
 
 ya aye
 prrrrrrrrrrr
 
-that sys tech took too many nulls aye 
+that sys tech took (too) many nulls aye 
 i ain't givin' up - hackin' real till we cut
 i'm burnin' haze kush with my circle ops
-we bring home-or-we-dry in space till we done aye
+we bring home or we dry in space till we done aye
 
 gettin' it done, tough nails 
 through the coffin 
