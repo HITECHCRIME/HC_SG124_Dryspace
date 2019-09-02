@@ -17,9 +17,9 @@ NF type https://www.youtube.com/watch?v=yWIt9L_g5Nc
 
 ACTUAL BEAT https://www.youtube.com/watch?v=9s3dyl_w7o8
 
-**Title:**  / **Featuring:**  
+**Title:** Dryspace / **Featuring:**  
 
-**Production:**  / **Lyrics:** 
+**Production:** Syler / **Lyrics:** MOTHNODE
 
 ## Lyrics
 
