@@ -24,9 +24,8 @@ ACTUAL BEAT https://www.youtube.com/watch?v=9s3dyl_w7o8
 ## Lyrics
 
 ```
-NEW
 
-that sys tech took too many nulls aye 
+That sys tech took too many nulls aye 
 i ain't givin' up - hackin' real till we cut
 i'm burnin' haze kush with my circle ops
 we bring home-ooor-we-dry in space till we done 
