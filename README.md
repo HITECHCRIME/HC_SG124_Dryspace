@@ -52,6 +52,7 @@ whispers whispers whispers whispers whispers
 friction to rn
 no friction to run aye
 
+ya aye
 prrrrrrrrrrr
 
 that sys tech took too many nulls aye 
