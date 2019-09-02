@@ -150,4 +150,4 @@ Till we done
 
 ## Music Video
 
-Each verse will be represented differently visually. Since we have a small amount of video length to work with it has got to be a quick story or just vibe experience. They meant something, now they mean nothing whispers - the thoughts and bad processes. Visualization of the circles in physical space - overlayed around my head. Environment, groupthink > emotions > thoughts > core self.
+Each verse will be represented differently visually. Since we have a small amount of video length to work with it has got to be a quick story or just vibe experience. They meant something, now they mean nothing whispers - the thoughts and bad processes. Visualization of the circles in physical space - overlayed around my head. Environment, groupthink > emotions > thoughts > core self. Camera zooms inwards as we enter the radia of circles.
