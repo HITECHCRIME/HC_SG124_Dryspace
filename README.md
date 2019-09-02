@@ -48,8 +48,7 @@ they meant something
 now they mean nothing
 whispers whispers whispers whispers whispers
 - to run
-
-
+friction to rn
 no friction to run aye
 
 prrrrrrrrrrr
@@ -57,7 +56,7 @@ prrrrrrrrrrr
 that sys tech took too many nulls aye 
 i ain't givin' up - hackin' real till we cut
 i'm burnin' haze kush with my circle ops
-we bring home-or-we-dry in space till we done 
+we bring home-or-we-dry in space till we done aye
 
 gettin' it done, tough nails 
 through the coffin 
@@ -69,7 +68,6 @@ with their orders
 words of dire that mean nothing 
 they mean nothing to you lot
 they mean nothing
-
 
 
 
