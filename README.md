@@ -29,7 +29,36 @@ NEW
 that sys tech took too many nulls aye 
 i ain't givin' up - hackin' real till we cut
 i'm burnin' haze kush with my circle ops
-we bring home or we dry in space till we done 
+we bring home-ooor-we-dry in space till we done 
+
+gettin' it done, tough nails 
+through the coffin 
+life runs its own course 
+along the lines of others 
+telling you to stop so often 
+
+let'em try to touch you 
+with their orders 
+words of dire that mean nothing 
+they mean nothing to you lot
+they mean nothing
+
+they meant something
+now they mean nothing
+they meant something
+now they mean nothing
+whispers whispers whispers whispers whispers
+- to run
+
+
+no friction to run aye
+
+prrrrrrrrrrr
+
+that sys tech took too many nulls aye 
+i ain't givin' up - hackin' real till we cut
+i'm burnin' haze kush with my circle ops
+we bring home-or-we-dry in space till we done 
 
 gettin' it done, tough nails 
 through the coffin 
@@ -42,6 +71,10 @@ words of dire that mean nothing
 they mean nothing to you lot
 they mean nothing
 
+
+
+
+OLD
 
 
 burnin' haze kush with demigods
