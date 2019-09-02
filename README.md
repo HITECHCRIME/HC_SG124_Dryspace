@@ -48,7 +48,7 @@ now they mean nothing
 they meant something
 now they mean nothing
 whispers whispers whispers whispers 
-whispers to run
+whispers to run no
 friction to run
 no friction to run aye
 
