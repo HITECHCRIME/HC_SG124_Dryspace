@@ -56,7 +56,7 @@ ya aye
 prrrrrrrrrrr
 
 that sys tech took (too) many nulls aye 
-i ain't givin' up - hackin' real till we cut
+i ain't givin' up - hackin' real till we cut (drop)
 i'm burnin' haze kush with my circle ops
 we bring home or we dry in space till we done aye
 
