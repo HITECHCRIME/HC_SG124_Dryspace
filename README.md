@@ -30,7 +30,7 @@ that sys tech (took) too many nulls aye
 i ain't givin' up - hackin' real till we cut
 i'm burnin' haze kush with my circle ops
 we bring home-ooor-we-dry in space till we done aye
-
+(and drop)
 gettin' it done, tough nails 
 through the coffin 
 life runs its own course 
@@ -59,7 +59,7 @@ that sys tech took (too) many nulls aye
 i ain't givin' up - hackin' real till we cut (drop)
 i'm burnin' haze kush with my circle ops
 we bring home or we dry in space till we done aye
-
+(and drop)
 gettin' it done, tough nails 
 through the coffin 
 life runs its own course 
