@@ -5,17 +5,7 @@
 **Listen now:** x
 
 ## Project Data
-
-Description.
-https://www.youtube.com/watch?v=TfNR-tGkrew 130bpm
-https://www.youtube.com/watch?v=KB-gR9CV954 120bpm
-https://www.youtube.com/watch?v=lLCDeQTXgwY 130bpm
-https://www.youtube.com/watch?v=9PsYgKnpauI 130bpm
-https://www.youtube.com/watch?v=3LSSbBRnOC0
-
-NF type https://www.youtube.com/watch?v=yWIt9L_g5Nc
-
-ACTUAL BEAT https://www.youtube.com/watch?v=9s3dyl_w7o8
+BEAT https://www.youtube.com/watch?v=9s3dyl_w7o8
 
 **Title:** Dryspace / **Featuring:**  
 
