@@ -1,4 +1,4 @@
-[cover] ![](57175019_319474918741616_8502199518755923887_n.jpg)
+[cover] ![](Screenshot%202019-09-15%20at%2020.40.20.png)
 
 # MOTHNODE_ Dryspace [Directive Protocol α]
 
