@@ -2,12 +2,12 @@
 
 # MOTHNODE_ Dryspace [Directive Protocol α]
 
-**Listen now:** x 
+**Listen now:** 
 
 ## Project Data
 BEAT https://www.youtube.com/watch?v=9s3dyl_w7o8
 
-**Title:** Dryspace / **Featuring:**  
+**Title:** Dryspace / **Featuring:** MOTHNODE
 
 **Production:** Syler / **Lyrics:** MOTHNODE
 
