@@ -5,7 +5,6 @@
 **Listen now:** 
 
 ## Project Data
-BEAT https://www.youtube.com/watch?v=9s3dyl_w7o8
 
 **Title:** Dryspace / **Featuring:** MOTHNODE
 
@@ -124,6 +123,8 @@ Till we done
 | 4 | *as i* **reach** to grab the |  **mic** i contem-  | **plate** what i | **might** say |
 
 ## Notes
+
+BEAT https://www.youtube.com/watch?v=9s3dyl_w7o8 
 
 ## Music Video
 
