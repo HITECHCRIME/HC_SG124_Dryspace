@@ -12,7 +12,6 @@
 
 ## Lyrics
 
-
 ```
 <intro>
 test
