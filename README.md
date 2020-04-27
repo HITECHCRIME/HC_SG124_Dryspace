@@ -134,3 +134,38 @@ Each verse will be represented differently visually. Since we have a small amoun
 Alternatively we can also make a short film out of it. Hybrid of music video and atmospheric narrative intro. That would perhaps add another 50 seconds to the track or so. 2:30 is acceptable. Then the film will be either improvised or screen on stage to create an atmosphere of a story/narration/experience.
 
 Video incoming. Sketched a micro storyboard.
+
+/// MUSIC VIDEO PRACTICE (FULLY MADE ON MOBILE)_
+
+Not the actual video for this particular song (“Dryspace”) but decided to test the tech and see what I can come up with limited resources and time as Helve AVR operative.
+
+that sys tech took too many nulls aye
+i ain't givin' up - hackin' real till we cut
+i'm burnin' haze kush with my circle ops
+we bring home or we dry in space
+till we done aye
+
+gettin' it done, tough nails
+through the coffin
+life runs its own course
+along the lines of others
+telling you to stop so often
+let'em try to touch you
+with their orders
+words of dire that mean nothing
+they mean nothing to you lot
+they mean nothing
+
+they meant something
+now they mean nothing
+they meant something
+now they mean nothing
+whispers whispers whispers whispers
+whispers me to run no
+friction to run
+no friction to run aye
+
+@hitechcrime
+
+Video features products from @aokuco (much love) and @nike. Please tag @nike ;) .
+#trapcore #aggrotrap #trapmusic #musicvideo #hitechcrime #helveavr #nike #techwear #redalert #trapmetal #metal #bass #creative #ops #polskitrap #polskirap #polskihiphop
